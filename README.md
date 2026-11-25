@@ -1,2 +1,2 @@
 # HEY
-Follow this instrucciones
+Follow this instructions
